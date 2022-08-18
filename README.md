@@ -15,4 +15,4 @@ Information is travelling all accross the world and my processor is filtering an
 
 
 Reach out on Linkedin: https://www.linkedin.com/in/mihnea-nandra/
-Or e-mail me directly: nandra.mihnea@gmail.com
+ or e-mail me directly: nandra.mihnea@gmail.com
