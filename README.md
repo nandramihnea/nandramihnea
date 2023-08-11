@@ -1,6 +1,6 @@
 👋 Hi, I’m @nandramihnea
 
-Actually, my name is Mihnea and I'm 28. I love 🏀 ⚽ and 🍉.
+Actually, my name is Mihnea and I'm 29. I love 🏀 ⚽ and 🍉.
 I have a 4.98 Uber rating because I tip, and 🚴 is a thing I really enjoy.
 Reading books is something that I try to include in my daily routine among meditation. 
 
